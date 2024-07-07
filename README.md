@@ -1,1 +1,1 @@
-https://Wacky-R-Dude.github.io/rsschool-cv/cv
+https://Wacky-R-Dude.github.io/rsschool-cv/
